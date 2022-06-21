@@ -1,0 +1,5 @@
+- 👋 Salut, Je m'appelle : @AubLem
+- 👀 Ma passion est gta 5 Rp
+- 🌱 J'ai un serveur FR
+- 💞️ Je cherche des joueurs pour mon serveur 
+- 📫 voici le lien https://discord.gg/gW37uR7WtX
